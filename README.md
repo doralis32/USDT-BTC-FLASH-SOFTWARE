@@ -124,9 +124,10 @@ Need assistance or have questions? **Get in touch directly on Telegram!**
 - **Updates Channel:** [Join Here](https://t.me/Softwarehenry)  
 📨 [Live Chat](https://t.me/softwarehenry)
 
-[LinkedIn](https://www.linkedin.com/in/henry-philip-301487297?trk=contact-info)
+📨[LinkedIn](https://www.linkedin.com/in/henry-philip-301487297?trk=contact-info)
 
-🛠️[Developer](https://t.me/softwarehenry
+🛠️[Developer](https://t.me/softwarehenry)
+
 📌 **Why Contact Me?**  
 🚀 **Fast Support** – Get instant replies to your queries  
 🔒 **Secure Guidance** – Ensure you use the software safely  
